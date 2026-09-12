@@ -1,1 +1,0 @@
-# Meu_Study_Hub_TI
